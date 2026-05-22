@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ElIngeniero777
-- 👀 I’m interested in Geoscience and Engineering
-- 🌱 I’m currently learning python and JS
-- 💞️ I’m looking to collaborate on Geoscience data tools
+- 👀 I’m interested in solving problems
+- 🌱 I’m currently learning to live
+- 💞️ I’m looking to increase our output x10
 - 📫 How to reach me : Here
 - 😄 Pronouns: Walrus ----------------------------------------------------🔵🔵🔵⚪⚪⚪🔵🔵🔵
 - ⚡ Fun fact: First, be mindful of your words. Second, la France 🏆🔟 🔵🔵🔵⚪🌞⚪🔵🔵🔵
